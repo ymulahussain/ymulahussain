@@ -2,4 +2,4 @@
 - 👀 I’m interested in Microprocessor Devlopment
 - 🌱 I’m currently learning Electrical Engineering
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me Ymulahussain@gmail.com
+- 📫 How to reach me ymulahussain@ualberta.ca
